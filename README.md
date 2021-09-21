@@ -1,0 +1,2 @@
+- hello, I’m syskey
+- i started coding when i was nine ive been doing pretty well i just want to upload my projects and this is what i thought of so yea thats why im here
